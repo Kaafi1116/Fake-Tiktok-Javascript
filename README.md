@@ -1,4 +1,4 @@
-OLD BABA# Fake Tiktok (Video chat streaming)
+https://vm.tiktok.com/ZMkuydq1o/# Fake Tiktok (Video chat streaming)
 
 ## Description
 
